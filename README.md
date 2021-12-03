@@ -9,6 +9,6 @@
 - 🌱 I’m currently living and working in Ho Chi Minh city
 - 🍑 What's my hobby: traveling, researching, shopping
 - 📫 How to reach me: phuonganh.dang9901@gmail.com
-- 🔮 Facebook: https://www.facebook.com/phanh.phanh.7399/
+- 🔮 Linkedln: https://www.linkedin.com/in/dang-phuong-anh-71992017a/
 - 🍂 Favorite quote: "The most beautiful thing you can be is yourself."
 - ⚡ Fun fact: I'm single !!!
