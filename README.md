@@ -11,4 +11,4 @@
 - 📫 How to reach me: phuonganh.dang9901@gmail.com
 - 🔮 Linkedln: https://www.linkedin.com/in/dang-phuong-anh-71992017a/
 - 🍂 Favorite quote: "The most beautiful thing you can be is yourself."
-- ⚡ Fun fact: I'm single !!!
+- ⚡ Fun fact: I like peach tea :>
